@@ -3,6 +3,6 @@
 - 👋 Hi, I’m Ana.
 - 👀 I’m interested in game designer.
 - 🌱 I’m currently learning 3d modelling.
-- 💞️ I’m looking to collaborate on @KingStoneStudio
+- 💞️ I’m looking to collaborate on KingStone Interactive.
 - 📫 Reach me on twitter!
 - 🥜 I like peanuts :3
